@@ -1,1 +1,0 @@
-# vtplgeomo6k8c
